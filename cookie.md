@@ -3,8 +3,8 @@ Chocolate Chip Cookies
     Total Time: 18 minutes
 
     Ingredients:
-        Flour
-        Sugar (brown and granulated)
+        Not filtrated Flour
+        Brown Sugar (brown and granulated)
         Baking soda
         Salt
         Butter (melted)
